@@ -1,3 +1,5 @@
+https://canva.link/u0n6893a6bty656
+
 one platform, multiple user stories, intelligent feedback, development loop
 
 Ada Lovelace didn't just ask what a machine could calculate: She asked what it could become.
